@@ -1,0 +1,2 @@
+# xtb
+Shahrixon tumani XTB
